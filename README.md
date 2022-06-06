@@ -53,9 +53,9 @@ Miles de personas peregrinan desde Chile, Perú y Bolivia para celebrar esta fie
 
 **Chuncho:** Uno de los primeros bailes que han originado esta festividad. Con sus plumajes también representan el vínculo con las sociedades amazónicas y del noreste de Argentina. 
 
-**Gitanas:**
+**Gitanas:** Los gitanos visten trajes convencionales, con vistosos pañuelos amarrados a la cabeza. Bailan en rueda. Avanzan y retroceden dando vueltas sobre ellos mismos, con rápidos movimientos. Las gitanas acompañan los giros con toques de pandereta que llevan adornadas con profusión de cintas multicolores. 
 
-**Músico:**
+**Músico:** Los músicos van detrás del baile o a un lado. Al frente de cada columna va un guia, que abre el camino e inicia el canto.
 
 **Diablo:** Representa la capacidad de la Virgen de poder tener a los demonios bailando para ella. Es una figura que puede generar el mal o el bien, que llegó en los 60 desde Bolivia y que puede dirigir la Tirana al son de las tradiciones andinas y cristianas.
 
