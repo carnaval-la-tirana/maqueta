@@ -51,6 +51,21 @@ En la Tirana se manifiestan una gran cantidad de bailes, tanto tradicionales com
 
 Los primeros corresponden a bailes antiguos pasados de generación en generación desde tiempos inmemoriales, mientras que los segundos son resultado del "capricho novedoso de algún grupo entusiasta que organiza un baile para asombrar al público" (Uribe, 1976, p.20).
 
+Chunchos: Baile mixto de origen boliviano, los bailarines describen círculos, con pasos y saltos largos. Éstos llevan una lanza de madera en la mano denominada «chonta» conectada a un cable tenso que permite percutir con la madera generando un sonido suave característico.
+
+Kullacas: Se remonta a las danzas ceremoniales de las Vírgenes del Sol del Imperio inca. Este baile femenino consta de diversas mujeres que giran en torno a una gran vara. Cada bailarina lleva una cinta de color unida al extremo superior de la vara, por lo que a lo largo de la danza, las distintas cintas se trenzan en el poste, para seguir luego desenredándola y así terminando la danza.
+
+Pastoras:
+
+Morenos: Esta danza muy caracteristica de las fiestas religiosas del Norte de Chile representa a los esclavos de los pueblos originarios del Norte de Chile (propiamente mineros) los cuales eran forzados a trabajar para los colonos.
+
+Llameros:
+
+Diablos: Se inspiran en la diablada altiplánica boliviana que llega a la fiesta el segundo tercio del s. XX. Se basa principalmente en filas de cholas (mujeres) y diablos ( hombres) quienes frente a la imagen de la Virgen van danzando intrincadas coreografías que representan la lucha del bien y el mal. 
+
+Callahuasis:
+
+Cambas:
 
 ### LAS DANZAS DE LA TIRANA
 Una característica que diferencia a La Tirana de otras celebraciones es la gran variedad de compañías o hermandades, las cuales se dividen en *bailes de paso* y *bailes de salto*.
