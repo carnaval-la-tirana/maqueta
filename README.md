@@ -43,6 +43,14 @@ Miles de personas peregrinan desde Chile, Perú y Bolivia para celebrar esta fie
 - **En el día 15** se llega al momento más alto de esta fiesta religiosa. En este día se realiza la **vigilia**, donde los grupos de bailarines hacen fogatas y lanzan fuegos artificiales, esperando la **medianoche**.
 - El **cuarto día de celebración (16 de julio)**, es el más importante de esta fiesta, porque la **virgen sale a recorrer** las empolvadas calles de La Tirana. Finalizado el recorrido, la **«Chinita»**, como le llaman a la virgen, vuelve a la capilla y comienza el lento retorno de los feligreses y compañías de baile a sus lugares de origen.
 
+### PERSONAJES TRADICIONALES
+
+**Diablo:** Representa la capacidad de la Virgen de poder tener a los demonios bailando para ella. Es una figura que puede generar el mal o el bien, que llegó en los 60 desde Bolivia y que puede dirigir la Tirana al son de las tradiciones andinas y cristianas.
+
+**Cuyaca:** Significa hermana. Representan a los bailes andinos y al trabajo pastoril, danzando con artículos de lana y trenzando una vara que puede izar una bandera.
+
+**Chuncho:** Uno de los primeros bailes que han originado esta festividad. Con sus plumajes también representan el vínculo con las sociedades amazónicas y del noreste de Argentina. 
+
 ### BAILES
 
 En la Tirana se manifiestan una gran cantidad de bailes, tanto tradicionales como no tradicionales, inventados y de caracter "un tanto carnavalesco" (Uribe, 1976).
@@ -83,6 +91,8 @@ Uribe, J. (1976). *Fiesta de la Tirana de Tarapacá*. Chile: Ediciones Universit
 Joaquín. (2017). *Conoce la Fiesta de La Tirana, el carnaval más grande de Chile*.
 https://www.denomades.com/blog/conoce-fiesta-la-tirana-carnaval-chile/#:~:text=La%20fiesta%20de%20La%20Tirana%20es%20uno%20de%20las%20celebraciones,Chile%2C%20la%20Virgen%20del%20Carmen.
 
-Alarcón, T. (2012). Historia y Bailes de la Fiesta de La Tirana. Identidad y futuro.
+Alarcón, T. (2012). *Historia y Bailes de la Fiesta de La Tirana.* Identidad y futuro.
 https://identidadyfuturo.cl/2012/07/10/historia-y-bailes-de-la-fiesta-de-la-tirana/
 
+Fiol, C. (2018). *Al ritmo de diablos, tobas y cuyacas: Los personajes que dan vida a la devota fiesta de La Tirana.* El mercurio.
+https://www.emol.com/noticias/Nacional/2018/07/14/913292/Al-ritmo-de-diablos-tobas-y-cuyacas-Los-personajes-que-dan-vida-a-la-devota-fiesta-de-La-Tirana.html
