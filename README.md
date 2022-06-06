@@ -45,11 +45,19 @@ Miles de personas peregrinan desde Chile, Perú y Bolivia para celebrar esta fie
 
 ### PERSONAJES TRADICIONALES
 
-**Diablo:** Representa la capacidad de la Virgen de poder tener a los demonios bailando para ella. Es una figura que puede generar el mal o el bien, que llegó en los 60 desde Bolivia y que puede dirigir la Tirana al son de las tradiciones andinas y cristianas.
+**Piel Roja**:
 
 **Cuyaca:** Significa hermana. Representan a los bailes andinos y al trabajo pastoril, danzando con artículos de lana y trenzando una vara que puede izar una bandera.
 
+**Pastora:** Visten el axso, túnica hecha con ponchitos de variados colores y aguayos adornados con cucharas de plata boliviana que prenden al pecho. Van cubiertas, con un phanta, adornado con lentejuelas. Llevan un cinturón de Iana trenzada del que cuelgan una bolsa repleta de monedas antiguas. Bailan en círculo, con pasitos cortos y bornean unas guaracas simulando la faena de agrupar las ovejas. 
+
 **Chuncho:** Uno de los primeros bailes que han originado esta festividad. Con sus plumajes también representan el vínculo con las sociedades amazónicas y del noreste de Argentina. 
+
+**Gitanas:**
+
+**Músico:**
+
+**Diablo:** Representa la capacidad de la Virgen de poder tener a los demonios bailando para ella. Es una figura que puede generar el mal o el bien, que llegó en los 60 desde Bolivia y que puede dirigir la Tirana al son de las tradiciones andinas y cristianas.
 
 ### BAILES
 
