@@ -45,7 +45,7 @@ Miles de personas peregrinan desde Chile, Perú y Bolivia para celebrar esta fie
 
 ### PERSONAJES TRADICIONALES
 
-**Piel Roja**:
+**Piel Roja**:Su existencia se debe a los western del cine mudo que llegaban a las salitreras, donde estos personajes estan vestidos como los indígenas de Norte América, tales como sioux, pieles rojas o apaches. Su baile se identifica por el uso de lanzas para marcar el ritmo, pero también en las noches hacen danzas alrededor de fogatas.
 
 **Cuyaca:** Significa hermana. Representan a los bailes andinos y al trabajo pastoril, danzando con artículos de lana y trenzando una vara que puede izar una bandera.
 
